@@ -1,0 +1,1 @@
+# Gawol_Terminal_based_hawak_kamay_scholarship_monitoring_system
